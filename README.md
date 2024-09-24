@@ -1,5 +1,5 @@
 # 💫 About Me:
-✔ Soy estudiante de Desarrollo en software<br>✔ Estoy mas especializado en el desarrollo web<br>✔ Tengo 23 años<br>✔ Trabajo colaborativamente<br>✔ Me gusta aprender cosas nuevas<br>✔ Estoy dispuesto a aprender y desafiar mis conocimientos
+✔ Soy estudiante de Desarrollo en software<br>✔ Estoy mas especializado en el desarrollo web<br>✔ Tengo 24 años<br>✔ Trabajo colaborativamente<br>✔ Me gusta aprender cosas nuevas<br>✔ Estoy dispuesto a aprender y desafiar mis conocimientos
 
 
 ## 🌐 Socials:
